@@ -20,9 +20,7 @@ politician and has served as Additional Secretary of the trust. Additionally, he
 
 various administrative committees within the trust. He delivered the speech on his past
 
-experiences in the auditorium.After this the principal Dr. Sehijpal Singh gave a welcome
-
-speech. After this we were given a tour of the college.
+experiences in the auditorium. After this we were given a tour of the college.
 
  ## Day -2(1 August 2025)
 
@@ -30,11 +28,7 @@ The day started with seeking the blessings of the guru in the gurudwara of the c
 
 Today we were having lectures by the experts (Dr. Priya Darshni Madam,Dr. Arvind Dhingra
 
-sir) in the auditorium. They told us about exploring our aspirations and concerns,basic
-
-human aspiration and its fulfilment and played games to test mental ability. we had our
-
-maths and english proficiency tests.
+sir) in the auditorium. we had our maths and english proficiency tests.
 
 ## Day-3(4 August 2025)
 
@@ -54,9 +48,7 @@ human values by the expert Dr. priya Darshni madam.she got us familiar with some
 
 important values also told us about basic human aspirations,what is wrong and
 
-right.after the break we had our lecture in mechanical seminar hall with prof.Jaswant
-
-singh.he has a very friendly behaviour.we had some general talks and then finished
+right.we had some general talks and then finished
 
 the lecture.
 
@@ -70,9 +62,7 @@ familiar with the latest motorsports rules and regulations.he told us to see out
 
 box,see which one can be used as limitation and are not in rules can be used in
 
-beneficiary in the race.later he told about the race competition in campus and how to enroll for it.He gave us information about the arduino board and other nano
-
-boards.next we had lecture in the auditorium.it was a lecture given by the expert Mrs.
+beneficiary in the race.next we had lecture in the auditorium.it was a lecture given by the expert Mrs.
 
 Shaffy makkar on another trending topic “Millets super food”.Millets are the species
 
@@ -88,11 +78,7 @@ Today our first lecture was by Dr. Parminder singh (Dean-Student welfare).he
 
 introduced us to the various activities and clubs in the college.He described about the
 
-sports complex of the college.
-
-He also told each and every student to be a member of one club.I personally want to
-
-be in(SAF) society of automobile engineers.we have more to explore in the
+sports complex of the college.we have more to explore in the
 
 college.next we had a lecture by Mr. Mandeep singh on topic “fitness for
 
@@ -102,15 +88,7 @@ and the sarpanch too.He awared us about gym exercises,about protein intake in bo
 
 and cleared our doubts of health and exercise. Next we had a lecture by respected
 
-brigadier P.S. Cheema sir.next after break we had our p2p lecture.we gained
-
-knowledge about basics of c++ language.the lecture was very interesting
-
-It was easy to understand.next we had our last lecture of the day by prof. Nisha.she
-
-was our English lecturer.she told us about public speaking,mam pointed out some
-
-students and told them to introduce themself in front of us.then we called it the day.
+brigadier P.S. Cheema sir.
 
 ## Day-6 (7- August-2025)
 
@@ -136,9 +114,7 @@ started with kirtan done by the boys of 3rd and 2nd year.they too performed rags
 
 music.then they performed some funny drama to make us laugh.we played games too.them
 
-we saw some video.the quote said by NSS is “we are volunteering for a cause,not for
-
-applause ”then we called it a day
+we saw some video.
 
 ## Conclusion
 
@@ -155,17 +131,3 @@ fitness, and public speaking, to engaging activities organized by various clubs�
 get a holistic understanding of campus life and the many avenues for personal and
 
 professional growth.
-
-I especially appreciated the interactive approach taken by the speakers and the
-
-encouragement to get involved in extracurricular activities, which fostered a sense of
-
-belonging and excitement among new students like me. The tours of campus facilities further
-
-helped me feel at home, and the early exposure to technical topics, peer engagement, and
-
-support services set a positive tone for my journey ahead. The induction program has
-
-instilled in me a strong sense of motivation, belonging, and readiness to embrace college life
-
-to the fullest.
